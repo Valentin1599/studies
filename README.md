@@ -1,0 +1,1 @@
+samuil padna na tabla
